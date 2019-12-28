@@ -1,3 +1,3 @@
 ### Leaders
 
-* [Walter Riveros](mailto://)
+* [Walter Riveros](mailto:)
